@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Lelouch16
+- 👋 Greetings, I’m Koji
 - 👀 I’m interested in: Anime, Reading, Music, Sports, Chess
 - 🌱 I’m currently learning: Java/JS/Python
 - 📫 How to reach me: Discord preferably, Email is fine, but may take longer.
